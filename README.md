@@ -18,6 +18,7 @@ Some moments just *hit different*. Like when they sit by the river or that silen
 
 ###  💬  Favorite Quote
 > “I guess when you're young, you believe there will be many people with whom you'll connect with. Later in life, you realize it only happens a few times"
+
 > "It’s not just about the fear of commitment or that I’m incapable of caring or loving. Because I can. if I'm totally honest with myself, I think I'd rather die knowing that I was really good at something... than that I'd just been in a nice, caring relationship"
 
 This line from them always gets me. It’s deep, honest, and painfully true. It reminds me how rare genuine connections are, and how we should appreciate them while they last. Bro, i'm dying for this kind of connection bro like pleaseee
