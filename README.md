@@ -1,5 +1,6 @@
-## My favorite movie is
-# **Before Sunrise**
+## 🎬 My favorite movie is # **Before Sunrise**
+
+![Before Sunrise Poster](https://upload.wikimedia.org/wikipedia/en/d/da/Before_Sunrise_poster.jpg)
 
 ## Overview
 *Before Sunrise* (1995) is a film directed by **Richard Linklater**, starring **Ethan Hawke** and **Julie Delpy**.  
@@ -7,7 +8,7 @@ It’s about two strangers — **Jesse**, an American, and **Céline**, a French
 
 -------------------
 
-### 💖 Why I Love It So Much
+### 💖 Why I Love It So Much   
 I’m seriously obsessed with *Before Sunrise*. It’s not your typical romance — it’s **real**, **deep**, and feels like watching two souls connect in the most genuine way. This movie is not the typical romance movie you are expecting
 because the whole movie is them just talking and having a conversation like they are getting to know each other. The conversations are so natural that it feels like eavesdropping on real people falling in love. And bro, their conversation
 is really genuine like I swear you can feel the emotions between them. Also, if you love this movie you really need to watch the sequel of it, there's the Before Sunset and Before Midnight. I swear it's all masterpiece.
@@ -15,7 +16,7 @@ Some moments just *hit different*. Like when they sit by the river or that silen
 
 -------------------
 
-###  Favorite Quote
+###  💬  Favorite Quote
 > “I guess when you're young, you believe there will be many people with whom you'll connect with. Later in life, you realize it only happens a few times"
 > "It’s not just about the fear of commitment or that I’m incapable of caring or loving. Because I can. if I'm totally honest with myself, I think I'd rather die knowing that I was really good at something... than that I'd just been in a nice, caring relationship"
 
